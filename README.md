@@ -1,1 +1,30 @@
-# Superduperfluffydinasoursdaaaysneverfiniiishmasterhotmewoorkingsomedaymastwrseetmefreeee
+https://policeinfo.global.ssl.fastly.net
+/www.columbiapublicschools.org
+https://frogiesarcade.win
+/https://northfayetteschools.org
+/https://cliffschools.org/
+https://caisseforsmithfieldschools.org/its on www.columbiapublicschools.org
+https://bog.lat.cdn.cloudflare.net
+/https://gooner.my
+/https://bog.lat
+/https://froggyisfunny.conyser.cl
+/https://vps.frogiee.one.cdn.cloudflare.net/
+https://frogee.goip.it
+/https://please.sell-my-car.autos
+/https://dissecting.frogs.biology.bethisraelmedia.org
+/https://arcfrog.atamanco.eu
+/https://frogiesarcade.win.cdn.cloudflare.net/
+https://arcfrog.barabesta.is/
+https://carnegielearning.ariely.info/
+https://plans.i-creativelearner.com/
+https://frogs.bostoncareercounselor.com/
+https://i-thought-i-could-trust-you-no-diddy-dog.satucat.uk
+/https://frog.ajh.boats
+/https://frogie.is.gonna.get.anallyviolated.com
+/https://cool.tecnibor.com
+/https://frogiee1likeskids.kernel32.fun
+/https://anything.aaimsedu.in/
+https://ywdynjhrue.jobvn.com/
+https://v4.mathsjunction.in.cdn.cloudflare.net/
+https://directory.leeschoolsk12.org/
+https://v4.quest/
